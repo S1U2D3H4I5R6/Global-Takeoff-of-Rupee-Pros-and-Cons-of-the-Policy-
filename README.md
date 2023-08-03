@@ -1,0 +1,2 @@
+# Global-Takeoff-of-Rupee-Pros-and-Cons-of-the-Policy-2
+Internationalisation of rupee reduced dependency on foreign currencies, increased global trade, strengthened regional influence, enhanced financial integration, improved monetary policy effectiveness, diversification of reserves among many other factors. It is second initiative by any Asian country, to internationalise their currency, after China.
